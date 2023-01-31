@@ -1,1 +1,1 @@
-I love the training ALX SE is offering
+Github repository is great
